@@ -1,6 +1,6 @@
 # Gift-card-to-cashapp
 
-[🎁Click here for get now🎁](info.liverewardss.com)
+[🎁Click here for get now🎁] (info.liverewardss.com)
 
 [🏆Click here for get now🏆](liverewardss.com/cashapp/)
 
