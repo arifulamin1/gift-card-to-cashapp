@@ -2,7 +2,7 @@
 
 [🎁Click here for get now🎁](https://liverewardss.com/cashapp/)
 
-[🏆Click here for get now🏆](liverewardss.com/cashapp/)
+[🏆Click here for get now🏆](https://liverewardss.com/cashapp/)
 
 Cash App Gift Cards: A Convenient Way to Give and Receive Money
 
